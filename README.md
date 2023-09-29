@@ -2,7 +2,8 @@
 - 👀 Interested in learning Github
 
 
-- 📫 "Reach me" via Linked In profile perezdotcom
+- 📫 "Reach me" via Linked In profile perezdotcom or via this gmail address: redjacketrooper@gmail.com.
+- That is all.
 
 <!---
 perezdotcom/perezdotcom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
