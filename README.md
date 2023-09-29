@@ -3,6 +3,7 @@
 
 
 - 📫 "Reach me" via Linked In profile perezdotcom or via this gmail address: redjacketrooper@gmail.com.
+- You can otherwise learn more about my "narrative" at www.steve-perez.com
 - That is all.
 
 <!---
